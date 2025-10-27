@@ -6,4 +6,4 @@
 
 📌 Serious buyers only. Let's keep it professional! 🚀
 
-🌐 [Genome Protocol Link](https://edge.genomeprotocol.com/profile/8012?refCode=GNM-e81E898F01Bc4) - Referral Code: `KUU8T4`
+🌐 [Genome Protocol Link](https://edge.genomeprotocol.com/profile/8012?refCode=GNM-e81E898F01Bc4)
